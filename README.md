@@ -1,3 +1,11 @@
+Persistent
+
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_MDk1NjNhNGQtNGM5YS00ZmRjLTg4NGEtZDIyNDMyYzU2NjU3%40thread.v2/0?context=%7b%22Tid%22%3a%221f4beacd-b7aa-49b2-aaa1-b8525cb257e0%22%2c%22Oid%22%3a%2234aa500c-f2fe-4e4e-9fd7-d004ffa212ab%22%7d
+
+
+
+
+
 interview :
 
 https://us02web.zoom.us/j/4474760240 
